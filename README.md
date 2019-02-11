@@ -1,1 +1,1 @@
-# Singtel-eDM-Campaign-1---HTML-Coding
+# Singtel eDM Campaign 1
